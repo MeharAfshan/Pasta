@@ -1,0 +1,5 @@
+Add the Italian sausage to a deep skillet or pot and cook over medium heat, breaking it up into pieces as it cooks. Mince two cloves of garlic, add it to the browned sausage, and sauté for 1 minute more.
+Next, add the tomato paste, crushed tomatoes, Italian seasoning, and water. Stir to combine and dissolve the browned bits off the bottom of the skillet. Allow the sauce to come to a simmer. Once simmering, place a tilted lid on top (to allow steam to escape while blocking splatter) and turn the heat down to medium-low. Let the sauce simmer, stirring occasionally, while you cook the pasta.
+Bring a large pot of water to a boil for the pasta. Once boiling, add the pasta and continue to boil until the pasta is tender (7-10 minutes, depending on the variety). Drain the pasta in a colander.
+After the pasta has cooked and the sauce has simmered a while, stir the heavy cream into the pasta sauce. Add the fresh spinach and stir it into the sauce just until wilted
+Finally, add the cooked and drained pasta to the sauce and stir to combine. Serve and enjoy!
